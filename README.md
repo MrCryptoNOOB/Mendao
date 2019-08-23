@@ -1,2 +1,0 @@
-# Mendao
-NOOB
